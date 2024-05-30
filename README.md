@@ -1,6 +1,6 @@
 ## Hi there 👋 I am Jurga
 
-Skills I've Acquired:
+Skills:
 ✅ SQL
 ✅ Tableau
 ✅ Excel
