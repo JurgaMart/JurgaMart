@@ -15,6 +15,9 @@ I also care about sustainability and protecting nature! I love long hiking trips
 
 If you are looking for help on your project connected to sustainability, feel free to connect! I would be happy to help!
 
+My email: jurga.martinaviciene@gmail.com
+
+
 
 
 
