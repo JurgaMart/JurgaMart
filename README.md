@@ -9,6 +9,8 @@ As my current job does not provide enough challenges anymore, I am currently on 
 - ✅ Python
 - ✅ Data Storytelling
 
+I am committed to continuous learning and am excited to see how the world of Data Analytics is changing and evolving. I am curious to find out where this journey will take me.
+
 I also care about sustainability and protecting nature! I love long hiking trips (last time I went, I walked for 5 days in a forest in Sweden without meeting another human being!).
 
 If you are looking for help on your project connected to sustainability, feel free to connect! I would be happy to help!
