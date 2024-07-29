@@ -1,11 +1,10 @@
 ## Hi there 👋 I am Jurga
 
-♻️ On transormation to a trustworthy Data Analyst.
+♻️ On transformation to a trustworthy Data Analyst.
 
-👑 A mature Family Operations Manager with 18 years of experience managing complex family operations across Germany, France, Lithuania, and the Netherlands. 
-With a team of four (plus 1), I excel in data collection, analysis, and strategic decision-making in a dynamic environment.
+👑 A mature Family Operations Manager with 18 years of experience managing complex family operations across Germany, France, Lithuania, and the Netherlands. With a team of four (plus 1), I excel in data collection, analysis, and strategic decision-making in a dynamic environment.
 
-💪 As my current job does not provide enough challenges anymore, I am devoting myself to became a trustworthy Data Analyst.
+💪 As my current job does not provide enough challenges anymore, I am devoting myself to become a trustworthy Data Analyst.
 
 🔒 I am committed to continuous learning and am excited to see how the world of Data Analytics is changing and evolving. I am curious to find out where this journey will take me.
 
