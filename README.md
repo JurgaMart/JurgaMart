@@ -9,9 +9,9 @@ With a team of four (plus 1), I excel in data collection, analysis, and strategi
 
 🔒 I am committed to continuous learning and am excited to see how the world of Data Analytics is changing and evolving. I am curious to find out where this journey will take me.
 
-🫶 I care about sustainability and protecting nature! I love long hiking trips (last time I went, I walked for 5 days in a forest in Sweden without meeting another human being!).
+🫶 I care about sustainability and protecting nature! I love long hiking trips.
 
-🤝 If you are looking for help on your project connected to sustainability, feel free to connect! I would be happy to help!
+🤝 If you are looking for help on your project (especially if it's connected to sustainability), feel free to connect! I would be happy to help!
 
 📧 You can contact me at jurgelis3@gmail.com 
 
