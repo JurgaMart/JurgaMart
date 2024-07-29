@@ -25,7 +25,7 @@ With a team of four (plus 1), I excel in data collection, analysis, and strategi
 
 ### Socials 
 - [![LinkedIn](https://img.shields.io/badge/LinkedIn-0077B5?style=for-the-badge&logo=linkedin&logoColor=white)](https://www.linkedin.com/in/jurga-marti)
-- [![GitHub](https://img.shields.io/badge/GitHub-181717?style=for-the-badge&logo=github&logoColor=white)](https://github.com/jurga.martinaviciene)
+- [![GitHub](https://img.shields.io/badge/GitHub-181717?style=for-the-badge&logo=github&logoColor=white)](https://github.com/JurgaMart)
 
 
 <!--
